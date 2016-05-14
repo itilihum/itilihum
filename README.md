@@ -1,2 +1,0 @@
-# itilihum
-my seocnd reposityr
